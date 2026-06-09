@@ -1,4 +1,4 @@
-
+exclusive Script for plants vs brainrots is the best plants vs brainrots Script, featuring silent aim and no cooldown. Safe and powerful for all your
 
 
 
